@@ -1,4 +1,4 @@
-Hi, I'm [Your Name] 👋
+Hi, I'm Aliya Warsia 👋
 About Me
 🎓 M.Com Graduate
 
